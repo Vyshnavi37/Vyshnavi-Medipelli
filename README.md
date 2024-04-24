@@ -20,7 +20,7 @@ I'm a passionate student Sridevi Women's Engineering Collage pursuing Bachelors 
 ## Get in Touch
 
 - 📧 Email: vyshnavi.medipelli03@gmail.com
-- 🔗 LinkedIn: linkedin.com/in/medipelli-vyshnavi-85441a283
+- 🔗 LinkedIn: www.linkedin.com/in/vyshnavi-medipelli-85441a283
 - 🐦 Twitter: www.twitter.com/@V200313
   
 Feel free to connect with me or check out my projects! 😄
